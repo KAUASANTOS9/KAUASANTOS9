@@ -8,3 +8,7 @@
  
 ### você entra em contato comigo 📧
 moreira.santos.kaua@escola.pr.gov.br 
+
+
+
+!.[](https://tenor.com/pt-BR/view/aplus-gif-4436275)
